@@ -1,1 +1,12 @@
-# deadinside✓emo✓drain✓epileptic✓paranoid✓toxic✓bipolar✓depressed✓tilted✓antisocial✓sad✓broken
+# deadinside✓
+# emo✓
+# drain✓
+# epileptic✓
+# paranoid✓
+# toxic✓
+# bipolar✓
+# depressed✓
+# tilted✓
+# antisocial✓
+# sad✓
+# broken✓
